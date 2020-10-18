@@ -1,0 +1,1 @@
+# CoolQuiz---Privacy-Policy
